@@ -14,6 +14,7 @@ Alexander-5 was responsible for coding especially in competition1
 Cindy-5. hepled me a lot and had an approavh to every person in our team
 Naima-4. came up with some ideas especially during sprint1
 Maisa-5. was always trying to solve problems and find solutions 
+me - 4
 
 ----
 

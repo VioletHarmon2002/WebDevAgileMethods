@@ -13,6 +13,7 @@ Rate on a Scale of 1-5
 Zehra-5(came up with some ideas within our group), 
 Yasmin-5(communicated with group members), 
 Ali-5(came up with a lot of ideas and hepled others to do given tasks)
+me - 5
 
 ----
 

@@ -14,6 +14,7 @@ Alexander-5
 Cindy-5. 
 Naima-4. 
 Maisa-5. 
+me - 3
  i was absent during this week, but i can evaluate skills of my peers through discussions on discord
 ----
 

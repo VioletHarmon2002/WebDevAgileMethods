@@ -14,6 +14,7 @@ Alexander-5 a peson who is really willing to help other team memeber and not hes
 Cindy-5. The whole week she was providig us with new ideas and i felt free to ask her questions.
 Naima-4. It was easy to talk with Naima and she was very motivated to learn new things and have conversations with us.
 Maisa-5. Made different solutions to the problems we had and perfomed a high level of team work.
+me - 5
 
 ----
 
