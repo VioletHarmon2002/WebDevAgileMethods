@@ -1,4 +1,4 @@
-# Reflection Journal for Week 2
+# Reflection Journal for Week 6
 
 - Student Name: [Elizaveta]
 - Week 6: 
